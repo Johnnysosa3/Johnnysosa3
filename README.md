@@ -11,4 +11,4 @@
 
 ϟ Currently conecting the best Latam Talent with US companies
 
-ϟ Recently IT Recruiter & Talent Sourcer
+ϟ Talent Acquisition Manager | IT Recruiter | Talent Sourcer
